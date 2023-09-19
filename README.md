@@ -1,1 +1,1 @@
-gamau belajar git with bintang
+BINTANG APUS GW DARI COLLABORATOR
